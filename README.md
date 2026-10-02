@@ -1,4 +1,4 @@
-## Hi there 👋# 💫 About Me:
+# 💫 About Me:
 I'm currently working on my w.i.p Minecraft mafia! My most used skins is WEMMBU.
 
 # 💻 Tech Stack:
@@ -37,19 +37,4 @@ I'm currently working on my w.i.p Minecraft mafia! My most used skins is WEMMBU!
 ---
 [![](https://komarev.com/ghpvc/?username=SillyRynz&icon=0&color=0)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->https://img.shields.io/badge/-Storybook-FF4785?style=for-the-badge&logo=storybook&logoColor=white
-
-<!--
-**SillyRynz/SillyRynz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
