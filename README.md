@@ -16,6 +16,6 @@ I'm currently working on my w.i.p Minecraft mafia! My most used skins is WEMMBU.
 
 ---
 [![](https://komarev.com/ghpvc/?username=SillyRynz&icon=0&color=0)](https://visitcount.itsvg.in)
-![Alt Text](https://pin.it/1qtBeQh3T)
 
+![Alt Text](https://pin.it/5zi1aF0XK)
 
