@@ -47,6 +47,5 @@ i'm a multifandom person who loves yapping about my interests, fictional charact
 ☆ feel free to interact with me!
 ☆ stay silly and enjoy your fandoms!
 
-★ RUINENE FOREVER ★
-
+<img width="735" height="420" alt="Image" src="https://github.com/user-attachments/assets/4238f002-6ee3-40d0-8649-f8d00282cc44" />
 </div>
