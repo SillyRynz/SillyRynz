@@ -8,7 +8,7 @@ hii!! welcome to my profile!
 
 you can call me Rina or Ryna!
 i'm a multifandom person who loves yapping about my interests, fictional characters, and random stuff!!
-<img width="1536" height="1536" alt="Image" src="https://github.com/user-attachments/assets/62969868-ce8a-4962-97cf-814ea38985bf" />
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/b5ef1e48-792a-4f3d-982e-99ab5db60e16" />
 ★ ── ABOUT ME ── ★
 
 ☆ name: Rina / Ryna
