@@ -1,46 +1,56 @@
+
+
 <div align="center">
 
-# ⛧ welcome to my profile.
+# ⛧ WELCOME TO MY PROFILE ⛧
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
 
-hi. i'm Ryna / Rina.
-just here, nothing special.
+hi, i'm Ryna / Rina !!
 
-🕯️ about me
+call me whichever you prefer. i'm a multifandom person who loves fictional characters, music, and random fandom brainrot.
 
-☆ Ryna / Rina
-☆ she / her
-☆ multifandom
-☆ project sekai
-☆ Ruinene enthusiast
-☆ panty & stocking
-☆ macaroni cheese
-☆ electric guitar
-☆ taken irl.
+🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+## ⛧ about me
 
-## ⛧ interests
+🕯️ name: Ryna / Rina
+🕯️ pronouns: she/her
+🕯️ multifandom
+🕯️ fav ship: Ruinene
+🕯️ PJSK lover
+🕯️ Panty & Stocking enjoyer
+🕯️ macaroni cheese enthusiast
+🕯️ I love playing electric guitar !!
+🕯️ I have a boyfriend irl !!
 
-🕯️ project sekai.
-🕯️ Ruinene.
-🕯️ panty & stocking.
-🕯️ music and electric guitar.
-🕯️ fictional characters.
-🕯️ whatever catches my attention.
+## 🩸 interests
 
-## ⛧ rules / dni
+⛧ Project Sekai
+⛧ Ruinene
+⛧ Panty & Stocking
+⛧ fictional characters
+⛧ multifandom stuff
+⛧ macaroni cheese
+⛧ electric guitar !!
 
-🩸 rude people, don't bother.
-🩸 respect my boundaries.
-🩸 no harassment or unnecessary drama.
-🩸 don't force interactions.
-🩸 if i don't like you, i'll keep my distance.
-🩸 basic respect isn't difficult.
+🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
 
-<img width="480" height="600" alt="Image" src="https://github.com/user-attachments/assets/120db117-f012-4fc8-9174-9f976775ea71" />.*
+## ⛧ rules / DNI
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+🕯️ DNI if you're rude or mean.
+🕯️ DNI if you disrespect my boundaries.
+🕯️ No harassment or unnecessary drama.
+🕯️ Don't force interactions.
+🕯️ Be respectful or leave.
+🕯️ Respect my interests, even if they're not yours.
 
+## 🕯️ before you leave
+
+I'm here to have fun, enjoy my fandoms, and be myself.
+
+**Be kind, or be gone.**
+
+🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+<img width="480" height="600" alt="Image" src="https://github.com/user-attachments/assets/120db117-f012-4fc8-9174-9f976775ea71" />
 </div>
