@@ -1,51 +1,46 @@
 <div align="center">
 
-# 🎈 RINA / RYNA 🎈
+# ⛧ welcome to my profile.
 
-☆ ─────────────── ☆
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-hii!! welcome to my profile!
+hi. i'm Ryna / Rina.
+just here, nothing special.
 
-you can call me Rina or Ryna!
-i'm a multifandom person who loves yapping about my interests, fictional characters, and random stuff!!
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/b5ef1e48-792a-4f3d-982e-99ab5db60e16" />
-🎈 ── ABOUT ME ── 🎈
+🕯️ about me
 
-☆ name: Rina / Ryna
-☆ pronouns: she / her
+☆ Ryna / Rina
+☆ she / her
 ☆ multifandom
-☆ PJSK lover
-☆ favorite ship: Ruinene
-☆ macaroni cheese enthusiast
-☆ i LOVE nerd boys.
-☆ i have a boyfriend irl!!
-
-🎈 ── MY INTERESTS ── 🎈
-
-☆ Project Sekai
-☆ Ruinene
-☆ Rui Kamishiro
-☆ Nene Kusanagi
-☆ Panty & Stocking
+☆ project sekai
+☆ Ruinene enthusiast
+☆ panty & stocking
 ☆ macaroni cheese
-☆ multifandom stuff
-☆ nerd boys!!
+☆ electric guitar
+☆ taken irl.
 
-🎈 ── RANDOM FACTS ── 🎈
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-☆ i can yap A LOT about my interests.
-☆ i love my favorite characters.
-☆ RUINENE FOREVER!!
-☆ macaroni cheese is SO GOOD.
-☆ i have too many fandoms to count.
-☆ i love my boyfriend!!
-☆ ok ok bla bla bla!!
+## ⛧ interests
 
-🍀 ── BEFORE YOU GO ── 🍀
+🕯️ project sekai.
+🕯️ Ruinene.
+🕯️ panty & stocking.
+🕯️ music and electric guitar.
+🕯️ fictional characters.
+🕯️ whatever catches my attention.
 
-☆ thanks for visiting my profile!
-☆ feel free to interact with me!
-☆ stay silly and enjoy your fandoms!
+## ⛧ rules / dni
 
-<img width="735" height="420" alt="Image" src="https://github.com/user-attachments/assets/4238f002-6ee3-40d0-8649-f8d00282cc44" />
+🩸 rude people, don't bother.
+🩸 respect my boundaries.
+🩸 no harassment or unnecessary drama.
+🩸 don't force interactions.
+🩸 if i don't like you, i'll keep my distance.
+🩸 basic respect isn't difficult.
+
+<img width="480" height="600" alt="Image" src="https://github.com/user-attachments/assets/120db117-f012-4fc8-9174-9f976775ea71" />.*
+
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+
 </div>
