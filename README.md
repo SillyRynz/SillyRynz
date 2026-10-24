@@ -1,21 +1,52 @@
-# 💫 About Me:
-Hello it's me Rynity👀
+<div align="center">
 
-# 💻 Tech Stack:
-![Storybook](https://img.shields.io/badge/-Storybook-FF4785?style=for-the-badge&logo=storybook&logoColor=white) ![Sketch](https://img.shields.io/badge/Sketch-FFB387?style=for-the-badge&logo=sketch&logoColor=black) ![Clip Studio Paint](https://img.shields.io/badge/ClipStudioPaint-%23CFD3D3.svg?style=for-the-badge&logo=ClipStudioPaint&logoColor=white) ![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white) ![Testing-Library](https://img.shields.io/badge/-TestingLibrary-%23E33332?style=for-the-badge&logo=testing-library&logoColor=white) ![Xbox](https://img.shields.io/badge/xbox-%23107C10.svg?style=for-the-badge&logo=xbox&logoColor=white) ![Steam](https://img.shields.io/badge/steam-%23000000.svg?style=for-the-badge&logo=steam&logoColor=white) ![Swagger](https://img.shields.io/badge/-Swagger-%23Clojure?style=for-the-badge&logo=swagger&logoColor=white) ![Crystal](https://img.shields.io/badge/crystal-%23000000.svg?style=for-the-badge&logo=crystal&logoColor=white)
-# 📊 GitHub Stats:
-![](https://github-readme-stats.shion.dev/api?username=SillyRynz&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://streak-stats.demolab.com/?user=SillyRynz&theme=dark&hide_border=false)<br/>
-![](https://github-readme-stats.shion.dev/api/top-langs/?username=SillyRynz&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
+# ★ RINA / RYNA ★
 
-## 🏆 GitHub Trophies
-![](https://github-profile-trophy.vercel.app/?username=SillyRynz&theme=radical&no-frame=false&no-bg=true&margin-w=4)
+☆ ─────────────── ☆
 
-### ✍️ Random Dev Quote
-![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=radical)
+hii!! welcome to my profile!
 
----
-[![](https://komarev.com/ghpvc/?username=SillyRynz&icon=0&color=0)](https://visitcount.itsvg.in)
+you can call me Rina or Ryna!
+i'm a multifandom person who loves yapping about my interests, fictional characters, and random stuff!!
 
-![Alt Text](https://example.com)
+★ ── ABOUT ME ── ★
 
+☆ name: Rina / Ryna
+☆ pronouns: she / her
+☆ multifandom
+☆ PJSK lover
+☆ favorite ship: Ruinene
+☆ macaroni cheese enthusiast
+☆ i LOVE nerd boys.
+☆ i have a boyfriend irl!!
+
+★ ── MY INTERESTS ── ★
+
+☆ Project Sekai
+☆ Ruinene
+☆ Rui Kamishiro
+☆ Nene Kusanagi
+☆ Panty & Stocking
+☆ macaroni cheese
+☆ multifandom stuff
+☆ nerd boys!!
+
+★ ── RANDOM FACTS ── ★
+
+☆ i can yap A LOT about my interests.
+☆ i love my favorite characters.
+☆ RUINENE FOREVER!!
+☆ macaroni cheese is SO GOOD.
+☆ i have too many fandoms to count.
+☆ i love my boyfriend!!
+☆ ok ok bla bla bla!!
+
+★ ── BEFORE YOU GO ── ★
+
+☆ thanks for visiting my profile!
+☆ feel free to interact with me!
+☆ stay silly and enjoy your fandoms!
+
+★ RUINENE FOREVER ★
+
+</div>
