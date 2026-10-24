@@ -14,15 +14,15 @@ call me whichever you prefer. i'm a multifandom person who loves fictional chara
 
 ## ⛧ about me
 
-🕯️ name: Ryna / Rina
-🕯️ pronouns: she/her
-🕯️ multifandom
-🕯️ fav ship: Ruinene
-🕯️ PJSK lover
-🕯️ Panty & Stocking enjoyer
-🕯️ macaroni cheese enthusiast
-🕯️ I love playing electric guitar !!
-🕯️ I have a boyfriend irl !!
+ name: Ryna / Rina
+ pronouns: she/her
+ multifandom
+ fav ship: Ruinene
+ PJSK lover
+ Panty & Stocking enjoyer
+ macaroni cheese enthusiast
+ I love playing electric guitar !!
+ I have a boyfriend irl !!
 
 ## 🩸 interests
 
@@ -38,12 +38,13 @@ call me whichever you prefer. i'm a multifandom person who loves fictional chara
 
 ## ⛧ rules / DNI
 
-🕯️ DNI if you're rude or mean.
-🕯️ DNI if you disrespect my boundaries.
-🕯️ No harassment or unnecessary drama.
-🕯️ Don't force interactions.
-🕯️ Be respectful or leave.
-🕯️ Respect my interests, even if they're not yours.
+ DNI if you're rude or mean.
+ DNI if you disrespect my boundaries.
+ No harassment or unnecessary drama.
+ Don't force interactions.
+ Be respectful or leave.
+ Respect my interests, even if they're not 
+ yours.
 
 ## 🕯️ before you leave
 
