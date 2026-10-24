@@ -1,6 +1,6 @@
 <div align="center">
 
-# ★ RINA / RYNA ★
+# 🎈 RINA / RYNA 🎈
 
 ☆ ─────────────── ☆
 
@@ -9,7 +9,7 @@ hii!! welcome to my profile!
 you can call me Rina or Ryna!
 i'm a multifandom person who loves yapping about my interests, fictional characters, and random stuff!!
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/b5ef1e48-792a-4f3d-982e-99ab5db60e16" />
-★ ── ABOUT ME ── ★
+🎈 ── ABOUT ME ── 🎈
 
 ☆ name: Rina / Ryna
 ☆ pronouns: she / her
@@ -20,7 +20,7 @@ i'm a multifandom person who loves yapping about my interests, fictional charact
 ☆ i LOVE nerd boys.
 ☆ i have a boyfriend irl!!
 
-★ ── MY INTERESTS ── ★
+🎈 ── MY INTERESTS ── 🎈
 
 ☆ Project Sekai
 ☆ Ruinene
@@ -31,7 +31,7 @@ i'm a multifandom person who loves yapping about my interests, fictional charact
 ☆ multifandom stuff
 ☆ nerd boys!!
 
-★ ── RANDOM FACTS ── ★
+🎈 ── RANDOM FACTS ── 🎈
 
 ☆ i can yap A LOT about my interests.
 ☆ i love my favorite characters.
@@ -41,7 +41,7 @@ i'm a multifandom person who loves yapping about my interests, fictional charact
 ☆ i love my boyfriend!!
 ☆ ok ok bla bla bla!!
 
-★ ── BEFORE YOU GO ── ★
+🍀 ── BEFORE YOU GO ── 🍀
 
 ☆ thanks for visiting my profile!
 ☆ feel free to interact with me!
