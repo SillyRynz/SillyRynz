@@ -2,7 +2,7 @@
 
 # ⛧ WELCOME TO MY PROFILE ⛧
 
-https://github.com/user-attachments/assets/dccce610-cf87-4741-966a-c7a3ba137da3
+<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/a5f692c9-87c5-4bf2-b4ee-05d5ded8f2b7" />
 
 hi, i'm Ryna / Rina !!
 
