@@ -2,7 +2,7 @@
 
 # ⛧ WELCOME TO MY PROFILE ⛧
 
-<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/a5f692c9-87c5-4bf2-b4ee-05d5ded8f2b7" />
+<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/e3a72e39-a4b3-40dc-af9a-6a11ee8a463a" />
 
 🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
 
