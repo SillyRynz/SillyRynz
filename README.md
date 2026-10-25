@@ -35,7 +35,7 @@ just here,nothing special.
 🕯️ 類寧々 - Ruinene
 🕯️ コーヒ- coffee
 🕯️ 音楽 - music
-🕯️ エレキギター - electric guitar
+🕯️ エレキギタ - electric guitar
 
 ## ⛧ 言語 — languages
 
