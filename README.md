@@ -1,6 +1,7 @@
 <div align="center">
 
-# ⛧ 影 — welcome to my profile.
+# ⛧ 影 — welcome to my profile.<img width="480" height="480" alt="Image" src="https://github.com/user-attachments/assets/0978ff5c-30ed-42ef-b76c-a384ff2f6e47" />
+
 
 
 <img width="1280" height="706" alt="Image" src="https://github.com/user-attachments/assets/69533b87-0aba-4327-a717-7f66c04866b0" />
