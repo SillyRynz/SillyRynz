@@ -53,5 +53,5 @@ I'm here to have fun, enjoy my fandoms, and be myself.
 **Be kind, or be gone.**
 
 🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
-<img width="80" height="100" alt="Image" src="https://github.com/user-attachments/assets/e5a3cfa7-1b40-420d-8555-3727281397f6" />
+<img width="300" height="390" alt="Image" src="https://github.com/user-attachments/assets/8b9af8fa-8963-42b6-a5cd-ecf410f21eeb" />
 </div>
