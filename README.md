@@ -11,7 +11,7 @@
 hi. i'm Ryna / Rina.
 just here, nothing special.
 
-🕯️ 自己紹介 — about me
+- 自己紹介 — about me  -
 
 ☆ name: Ryna / Rina
 ☆ pronouns: she/her
@@ -49,19 +49,17 @@ just here, nothing special.
 
 ## ⛧ ルール — rules / dni
 
-🩸 rude people, don't bother.
-🩸 respect my boundaries.
-🩸 no harassment or unnecessary drama.
-🩸 don't force interactions.
-🩸 basic respect isn't difficult.
+/ rude people, don't bother.
+/ respect my boundaries.
+/ no harassment or unnecessary drama.
+/ don't force interactions.
+/ basic respect isn't difficult.
 
-🕯️ 最後に — before you leave
+‼️ 最後に — before you leave ‼️
 
-何もない。ただの静寂。
-nothing here. just silence.
+*私のreadmeを読んでいただきありがとうございます*
+*Thank you for reading my readme!*
 
-*影の中で会いましょう。*
-*see you in the shadows.*
 
 🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
