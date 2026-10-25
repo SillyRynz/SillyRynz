@@ -7,9 +7,10 @@
 🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
 こんにちは、読んでください。
+
 Hello, please read this.
 
-hi.I'm Ryna / Rina.
+こんにちは! ( Hi! ). I'm Ryna / Rina.
 just here,nothing special.
 
 - 自己紹介 / about me  -
@@ -59,6 +60,7 @@ just here,nothing special.
 ‼️ 最後に — before you leave ‼️
 
 *私のreadmeを読んでいただきありがとうございます*
+
 *Thank you for reading my readme!*
 
 
