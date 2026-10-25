@@ -36,7 +36,7 @@ call me whichever you prefer. i'm a multifandom person who loves fictional chara
 
 🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
 
-## ⛧ rules / DNI
+## ⛧ RULES / DNI
 
  DNI if you're rude or mean.
  DNI if you disrespect my boundaries.
