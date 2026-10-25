@@ -1,5 +1,4 @@
-
-
+https://github.com/user-attachments/assets/dccce610-cf87-4741-966a-c7a3ba137da3
 <div align="center">
 
 # ⛧ WELCOME TO MY PROFILE ⛧
@@ -53,5 +52,5 @@ I'm here to have fun, enjoy my fandoms, and be myself.
 **Be kind, or be gone.**
 
 🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
-<img width="800" height="1000" alt="Image" src="https://github.com/user-attachments/assets/5cd01ed2-f02b-4935-990c-e75fc44f3c19" />
+<img width="480" height="600" alt="Image" src="https://github.com/user-attachments/assets/dccce610-cf87-4741-966a-c7a3ba137da3" />
 </div>
