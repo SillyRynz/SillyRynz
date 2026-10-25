@@ -6,12 +6,13 @@
 
 🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-静寂 (seijaku) — silence.
+こんにちは、読んでください。
+Hello, please read this.
 
-hi. i'm Ryna / Rina.
-just here, nothing special.
+hi.I'm Ryna / Rina.
+just here,nothing special.
 
-- 自己紹介 — about me  -
+- 自己紹介 / about me  -
 
 ☆ name: Ryna / Rina
 ☆ pronouns: she/her
@@ -29,11 +30,11 @@ just here, nothing special.
 
 ## ⛧ 好きなもの — interests
 
-🕯️ プロジェクトセカイ — Project Sekai
-🕯️ 類寧々 — Ruinene
-🕯️ コーヒー — coffee
-🕯️ 音楽 — music
-🕯️ エレキギター — electric guitar
+🕯️ プロジェクトセカイ - Project Sekai
+🕯️ 類寧々 - Ruinene
+🕯️ コーヒ- coffee
+🕯️ 音楽 - music
+🕯️ エレキギター - electric guitar
 
 ## ⛧ 言語 — languages
 
