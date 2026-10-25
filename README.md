@@ -1,57 +1,70 @@
+<div align="center">
 
-
-# ⛧ WELCOME TO MY PROFILE ⛧
+# ⛧ 影 — welcome to my profile.
 
 <img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/e3a72e39-a4b3-40dc-af9a-6a11ee8a463a" />
 
-🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-hi, i'm Ryna / Rina !!
+静寂 (seijaku) — silence.
 
-call me whichever you prefer. i'm a multifandom person who loves fictional characters, music, and random fandom brainrot.
+hi. i'm Ryna / Rina.
+just here, nothing special.
 
-🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+🕯️ 自己紹介 — about me
 
-## ⛧ about me
+☆ name: Ryna / Rina
+☆ pronouns: she/her
+☆ from Malaysia 🇲🇾
+☆ multifandom
+☆ Project Sekai
+☆ favorite ship: Ruinene
+☆ Panty & Stocking
+☆ macaroni cheese
+☆ coffee lover
+☆ electric guitar
+☆ taken irl.
 
- name: Ryna / Rina
- pronouns: she/her
- multifandom
- fav ship: Ruinene
- PJSK lover
- Panty & Stocking enjoyer
- macaroni cheese enthusiast
- I love playing electric guitar !!
- I have a boyfriend irl !!
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-## 🩸 interests
+## ⛧ 好きなもの — interests
 
-⛧ Project Sekai
-⛧ Ruinene
-⛧ Panty & Stocking
-⛧ fictional characters
-⛧ multifandom stuff
-⛧ macaroni cheese
-⛧ electric guitar !!
+🕯️ プロジェクトセカイ — Project Sekai
+🕯️ 類寧々 — Ruinene
+🕯️ コーヒー — coffee
+🕯️ 音楽 — music
+🕯️ エレキギター — electric guitar
 
-🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+## ⛧ 言語 — languages
 
-## ⛧ RULES / DNI
+☆ i'm from Malaysia.
+☆ i want to learn Japanese!
+☆ i want to learn Filipino / Tagalog!
+☆ 日本語を勉強したい。
+  (I want to study Japanese.)
+☆ タガログ語を勉強したい。
+  (I want to study Tagalog.)
 
- DNI if you're rude or mean.
- DNI if you disrespect my boundaries.
- No harassment or unnecessary drama.
- Don't force interactions.
- Be respectful or leave.
- Respect my interests, even if they're not 
- yours.
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-## 🕯️ before you leave
+## ⛧ ルール — rules / dni
 
-I'm here to have fun, enjoy my fandoms, and be myself.
+🩸 rude people, don't bother.
+🩸 respect my boundaries.
+🩸 no harassment or unnecessary drama.
+🩸 don't force interactions.
+🩸 basic respect isn't difficult.
 
-**Be kind, or be gone.**
+🕯️ 最後に — before you leave
 
-🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+何もない。ただの静寂。
+nothing here. just silence.
+
+*影の中で会いましょう。*
+*see you in the shadows.*
+
+🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+
 <img width="300" height="390" alt="Image" src="https://github.com/user-attachments/assets/8b9af8fa-8963-42b6-a5cd-ecf410f21eeb" />
+</div>
 </div>
