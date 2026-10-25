@@ -4,6 +4,8 @@
 
 <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/a5f692c9-87c5-4bf2-b4ee-05d5ded8f2b7" />
 
+🩸 ─── ⋆⋅☆⋅⋆ ─── 🩸
+
 hi, i'm Ryna / Rina !!
 
 call me whichever you prefer. i'm a multifandom person who loves fictional characters, music, and random fandom brainrot.
