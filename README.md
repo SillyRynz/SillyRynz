@@ -1,73 +1,104 @@
 <div align="center">
 
-# ⛧ 影 — welcome to my profile.<img width="480" height="480" alt="Image" src="https://github.com/user-attachments/assets/0978ff5c-30ed-42ef-b76c-a384ff2f6e47" />
+# ☆ 日本の夜 — RYNA'S PROFILE ☆
+welcome to my profile.<img width="480" height="480" alt="Image" src="https://github.com/user-attachments/assets/0978ff5c-30ed-42ef-b76c-a384ff2f6e47" />
 
-
-
+*「静かな夜に、ようこそ。」*
+*welcome to the quiet night.*
 <img width="1280" height="706" alt="Image" src="https://github.com/user-attachments/assets/69533b87-0aba-4327-a717-7f66c04866b0" />
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+### ☆ about me — 自己紹介
 
-こんにちは、読んでください。
-
-Hello, please read this.
-
-こんにちは! ( Hi! ). I'm Ryna / Rina.
-just here,nothing special.
-
-- 自己紹介 / about me  -
+hello, i'm Ryna / Rina.
+i'm from Malaysia and i'm a multifandom person.
+just here to enjoy my interests and exist.
 
 ☆ name: Ryna / Rina
 ☆ pronouns: she/her
-☆ from Malaysia 🇲🇾
-☆ multifandom
-☆ Project Sekai
-☆ favorite ship: Ruinene
+☆ country: Malaysia 🇲🇾
+☆ relationship: taken irl
+☆ status: just existing.
+
+*「私はただここにいるだけ。」*
+*I'm just here, existing.*
+
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
+
+### ☆ interests — 趣味
+
+☆ Project Sekai / PJSK
+☆ Rui Kamishiro & Nene Kusanagi
+☆ Ruinene is my favorite ship.
 ☆ Panty & Stocking
 ☆ macaroni cheese
-☆ coffee lover
+☆ coffee enthusiast
 ☆ electric guitar
-☆ taken irl.
+☆ music and fictional characters
+☆ multifandom stuff
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+i like what i like. that's all there is to it.
 
-## ⛧ 好きなもの — interests
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
 
-🕯️ プロジェクトセカイ - Project Sekai
-🕯️ 類寧々 - Ruinene
-🕯️ コーヒ- coffee
-🕯️ 音楽 - music
-🕯️ エレキギタ - electric guitar
+### ☆ languages — 言語
 
-## ⛧ 言語 — languages
+☆ Malay
+☆ English
+☆ Japanese — interested in learning.
+☆ Filipino / Tagalog — interested in learning.
 
-☆ i'm from Malaysia.
-☆ i want to learn Japanese!
-☆ i want to learn Filipino / Tagalog!
-☆ 日本語を勉強したい。
-  (I want to study Japanese.)
-☆ タガログ語を勉強したい。
-  (I want to study Tagalog.)
+*「少しずつ、学んでいく。」*
+*learning, little by little.*
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
 
-## ⛧ ルール — rules / dni
+### ☆ rules / DNI — 規則
 
-/ rude people, don't bother.
-/ respect my boundaries.
-/ no harassment or unnecessary drama.
-/ don't force interactions.
-/ basic respect isn't difficult.
+☆ DNI if you're rude or mean.
+☆ respect my boundaries.
+☆ no harassment or unnecessary drama.
+☆ don't force interactions.
+☆ don't disrespect my interests.
+☆ basic manners are appreciated.
+☆ if we don't get along, keep your distance.
 
-‼️ 最後に — before you leave ‼️
+i'm here to enjoy my interests, not argue with strangers.
 
-*私のreadmeを読んでいただきありがとうございます*
+*「礼儀を忘れないで。」*
+*don't forget your manners.*
 
-*Thank you for reading my readme!*
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
 
+### ☆ random things about me
 
-🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
+☆ i love coffee.
+☆ i enjoy playing electric guitar.
+☆ i can yap about my favorite fandoms.
+☆ i'm a multifandom person, so expect random topics.
+☆ i have a boyfriend in real life.
+☆ sometimes i prefer quiet conversations.
+☆ i don't take every little thing seriously.
 
+*「人それぞれ。」*
+*everyone is different.*
+
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
+
+### ☆ before you leave — 最後に
+
+thanks for visiting my profile.
+leave a star if you like my work.
+
+no need to make things complicated.
+be respectful and we'll be fine.
+
+*「夜はまだ終わらない。」*
+*the night isn't over yet.*
+
+━━━━━━━━━━━━━━ ☆ ━━━━━━━━━━━━━━
+
+**星空の下で。**
+*under the starry sky.*
 <img width="300" height="390" alt="Image" src="https://github.com/user-attachments/assets/8b9af8fa-8963-42b6-a5cd-ecf410f21eeb" />
-</div>
 </div>
