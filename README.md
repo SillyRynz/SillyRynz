@@ -68,6 +68,6 @@ just here,nothing special.
 
 🩸 ───── ⋆⋅☆⋅⋆ ───── 🩸
 
-<img width="300" height="390" alt="Image" src="https://github.com/user-attachments/assets/8b9af8fa-8963-42b6-a5cd-ecf410f21eeb" />
+<!-- Failed to upload "Untitled628_20261028091521.png" -->
 </div>
 </div>
