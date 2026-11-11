@@ -39,3 +39,4 @@ Please be kind and respectful. I'm just here to enjoy my interests, meet nice pe
 Thanks for visiting my profile
 
 (どうもありがとうございます!)
+<img width="475" height="324" alt="527a2a807967f8ddd58c4c7f667f99ce" src="https://github.com/user-attachments/assets/4d8b69fd-4e90-4f1a-811f-ae807d404f77" />
