@@ -1,7 +1,7 @@
-𝐇𝐞𝐥𝐥𝐨, 𝐰𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐦𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞 
+HELLO WECLOME TO MY PROFILE(๑ᵔ⤙ᵔ๑)
 <img width="540" height="225" alt="7fc865a0a1f2f8485befdada8981bb3f" src="https://github.com/user-attachments/assets/6f63142e-6b8b-44fa-9370-1a65be0f4f3c" />
 
-🦇 About me
+𖥻 ׁ ׅ  About me ! ﹒  ◡◡
 
 - Name: Ryna / Rina
 - Pronouns: She / Her
@@ -11,7 +11,7 @@
 - Favourite ice cream: Mint chocolate!
 - Currently interested in learning Japanese and Tagalog.
 
-🦇 Interests
+𖥻 ׁ ׅ   Interests ! ﹒  ◡◡
 
 - Anime
 - Video games
@@ -19,7 +19,7 @@
 - Electric guitar
 - Music and more!
 
-🦇 DNI — Do Not Interact
+𖥻 ׁ ׅ  DNI — Do Not Interact ! ﹒  ◡◡
 
 - Mean or rude people.
 - People who disrespect others.
@@ -27,12 +27,12 @@
 - People who don't respect boundaries.
 - Anyone who brings unnecessary drama.
 
-🦇 Languages I want to learn
+𖥻 ׁ ׅ  Languages I want to learn ! ﹒  ◡◡
 
 - Japanese (日本語)
 - Tagalog (Filipino)
 
-🦇 A little note
+ A little note
 
 Please be kind and respectful. I'm just here to enjoy my interests, meet nice people, and have fun!
 
