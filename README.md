@@ -4,7 +4,9 @@ HELLO WECLOME TO MY PROFILE(๑ᵔ⤙ᵔ๑)
 
 
 <img width="540" height="225" alt="7fc865a0a1f2f8485befdada8981bb3f" src="https://github.com/user-attachments/assets/49a4406f-dcc5-45f9-adf5-8fa2f37db15f" />
+
 𖥻 ׁ ׅ  About me ! ﹒  ◡◡
+
 
 - Name: Ryna / Rina
 - Pronouns: She / Her
