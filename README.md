@@ -1,5 +1,5 @@
 𝐇𝐞𝐥𝐥𝐨, 𝐰𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐦𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞 
-https://github.com/user-attachments/assets/6f63142e-6b8b-44fa-9370-1a65be0f4f3c
+<img width="540" height="225" alt="7fc865a0a1f2f8485befdada8981bb3f" src="https://github.com/user-attachments/assets/6f63142e-6b8b-44fa-9370-1a65be0f4f3c" />
 
 🦇 About me
 
