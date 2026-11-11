@@ -1,6 +1,9 @@
 HELLO WECLOME TO MY PROFILE(๑ᵔ⤙ᵔ๑)
-<img width="540" height="225" alt="7fc865a0a1f2f8485befdada8981bb3f" src="https://github.com/user-attachments/assets/6f63142e-6b8b-44fa-9370-1a65be0f4f3c" />
+<img width="430" height="240" alt="cac99575e4a926b41193c5f696960e75" src="https://github.com/user-attachments/assets/d346ed95-96a2-4875-85dc-bdd7867d6209" />
 
+
+
+<img width="540" height="225" alt="7fc865a0a1f2f8485befdada8981bb3f" src="https://github.com/user-attachments/assets/49a4406f-dcc5-45f9-adf5-8fa2f37db15f" />
 𖥻 ׁ ׅ  About me ! ﹒  ◡◡
 
 - Name: Ryna / Rina
