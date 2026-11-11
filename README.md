@@ -36,4 +36,5 @@
 Please be kind and respectful. I'm just here to enjoy my interests, meet nice people, and have fun!
 
 Thanks for visiting my profile
+
 （どうもありがとうございます！）
